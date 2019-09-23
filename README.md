@@ -15,4 +15,4 @@ Click this link for Part 2 of 3 videos https://www.youtube.com/watch?v=2tY1Ssf8j
 
 Click this link for Part 3 of 3 videos https://www.youtube.com/watch?v=7Cnzk9X-JAE
 
-Click this link for Part 4 of 4 videos INSERT YOUTUBE
+Click this link for Part 4 of 4 videos https://www.youtube.com/watch?v=NfxPp2pk17Q&feature=youtu.be
