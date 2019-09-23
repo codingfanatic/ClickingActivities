@@ -9,10 +9,10 @@ Click this link for Part 3 of the tutorial: https://www.codingfanatic.com/2019/0
 
 Click this link for Part 4 of the tutorial: https://www.codingfanatic.com/2019/09/23/setting-a-parent-activity-46-100-days-of-code/
 
-Click this link for Part 1 of 3 videos: https://youtu.be/lQUSOVZr63s
+Click this link for Part 1 of 4 videos: https://youtu.be/lQUSOVZr63s
 
-Click this link for Part 2 of 3 videos https://www.youtube.com/watch?v=2tY1Ssf8jnQ
+Click this link for Part 2 of 4 videos https://www.youtube.com/watch?v=2tY1Ssf8jnQ
 
-Click this link for Part 3 of 3 videos https://www.youtube.com/watch?v=7Cnzk9X-JAE
+Click this link for Part 3 of 4 videos https://www.youtube.com/watch?v=7Cnzk9X-JAE
 
 Click this link for Part 4 of 4 videos https://www.youtube.com/watch?v=NfxPp2pk17Q&feature=youtu.be
